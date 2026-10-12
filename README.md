@@ -61,6 +61,8 @@ Me interesa participar en proyectos pequeños y medianos relacionados con interf
 Puedes conocer mis repositorios y proyectos desde mi [perfil de GitHub](https://github.com/Anthony8724).
 
 Correo: 1hlopezanthony@gmail.com
+
+
 LinkedIn: https://www.linkedin.com/in/anthony-miguel-lópez-reveló-17815b411
 
 
